@@ -1,2 +1,2 @@
 soy lisandro 
-sigann ig:@lichaa_akd ⚡
+sigan ig:@lichaa_akd 
